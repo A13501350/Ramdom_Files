@@ -1,0 +1,27 @@
+## About Harriet Beecher Stowe
+
+Harriet Beecher Stowe (1811-1896) was born in Connecticut. Her mother died when she was only four, and her father, a stern New England preacher, made her read the Bible. Harriet attended Hartford Female Seminary in 1824-1827 and stayed on as a teacher. In 1836, she married Calvin Stowe, a professor at her father's theological seminary. While in Cincinnati, she saw the miseries of black slaves, whom she later wrote about as the characters in her novel. In 1852, when the issue of slavery was crucially threatening the unification of the country, Mrs Stowe published her famous anti-slavery novel Uncle Tom's Cabin; Or; Life among the Lowly. The novel had a sensational success, selling 300,000 copies the year it was published, stirring up great antislavery sentiments that led to the outbreak of the American Civil War in 1861. Later, when President Abraham Lincoln met Mrs Stowe in 1862, he greeted her as "the little lady who made this big war". However, she later wrote that the book was written by "the Lord Himself...I was but an instrument in His hands". Mrs Stowe continued to write and publish novels until she was nearly seventy. She was not a radical social reformer for equality, though. Most of her later works, such as Pink and White Lyranny: 4 Society Novel (1871), My Wife and I (1871), We and Our Neighbors (1875), The Minister's Wooing (1859) and The Pearl of Orr's Island (1862) expressed her belief that women could improve the world by being guardians of morals in the home, not in public. We always remember Harriet Beecher Stowe as one of America's most famous writers who wrote Uncle Tom's Cabin. Historians now recognize that her contribution to American history goes beyond these accomplishments. To understand Mrs Stowe's writing as a whole, it is important to note what she said about her works in her journal: "I wrote what I did because as a woman, as a mother I was oppressed and broken-hearted with the sorrows and injustice I saw..."
+## About Uncle Tom's Cabin
+
+Several stories intertwine throughout Uncle Tom's Cabin, but they all centre on two main plots.
+One plot focuses on the Harris family, and the other on Uncle Tom. Mr Shelby sells Tom to Haley, the slave trader, to pay off some debts. Eliza, Mrs Shelby's servant, fears that her son Harry will also be sold to Haley. She escapes to Ohio, taking Harry with her. Eliza's husband, George Harris, runs away too. The Harris family finally escapes the slave catchers and reaches Canada. Meanwhile, Tom saves the life of Little Eva, whose father, St. Clare, then purchases Tom. Little Eva is deeply sympathetic with Tom. Eva dies after a prolonged illness, and her father decides to free Tom as Eva, on her deathbed, asked him to free all his enslaved people. St. Clare is murdered, however, and Tom is sold to Simon Legree, a cruel slave owner. Legree beats Tom to death when Tom refuses to tell him about the hiding place of two slaves who are planning to escape. In the novel, the anguish of parted families and the cruelty of the slave owners are extremely telling, and Mrs Stowe's sympathy for the suffering slaves is on every page.
+## About This Selection
+
+
+The following excerpts are from the beginning narratives of Chapter XIV "Evangeline", and Chapter XL "The Martyr". Mrs Stowe laments that the mighty Mississippi River "whose products embrace all between the tropics and the poles", has been loaded with "a more fearful freight"— the tears, the sighs and the bitter prayers of poor, ignorant hearts of black slaves. Uncle Tom is sold to a new master and has to leave his family in Kentucky on a steamboat. On the deck, he is looking at the black slaves working in the cotton fields, daydreaming his miserable life and missing his family. This episode is followed by a passage that is often quoted as a pathetic condemnation of slavery and its inhuman cruelty.
+
+## 关于哈里特·比彻·斯托
+
+哈里特·比彻·斯托 (1811-1896) 出生于康涅狄格州。她的母亲在她四岁时就去世了，她的父亲是一位严厉的新英格兰传教士，他强迫她阅读《圣经》。哈里特于 1824 年至 1827 年就读于哈特福德女子神学院，并留校任教。1836 年，她嫁给了父亲神学院的教授卡尔文·斯托。在辛辛那提期间，她目睹了黑奴的苦难，后来她将他们作为小说中的人物来描写。1852 年，当奴隶制问题严重威胁到国家的统一时，斯托夫人出版了她著名的反奴隶制小说《汤姆叔叔的小屋；或；卑微者的生活》。这部小说取得了轰动性的成功，出版当年就卖出了 30 万册，激起了巨大的反奴隶制情绪，导致 1861 年美国内战爆发。后来，当亚伯拉罕·林肯总统于 1862 年会见斯托夫人时，他称她为“发动这场大战的小女士”。然而，她后来写道，这本书是“上帝亲自写的……我只是他手中的工具”。斯托夫人继续写作和出版小说，直到她将近 70 岁。不过，她并不是一个激进的平等社会改革者。她的大部分后期作品，如《粉红与白色的抒情诗：4 部社会小说》（1871 年）、《我的妻子和我》（1871 年）、《我们和我们的邻居》（1875 年）、《牧师的求爱》（1859 年）和《奥尔岛的珍珠》（1862 年），都表达了她的信念，即女性可以通过在家中而不是在公共场合成为道德的守护者来改善世界。
+
+我们永远记得哈里特·比彻·斯托是美国最著名的作家之一，她写了《汤姆叔叔的小屋》。历史学家现在认识到，她对美国历史的贡献远不止这些成就。要全面了解斯托夫人的作品，重要的是要注意她在日记中对自己作品的评价：“我之所以写这些，是因为作为一个女人，作为一个母亲，我被压迫，被我看到的悲伤和不公所伤……” 
+
+## 关于《汤姆叔叔的小屋》
+
+《汤姆叔叔的小屋》中交织着几个故事，但它们都围绕着两个主要情节展开。一个情节集中在哈里斯家族，另一个情节集中在汤姆叔叔身上。谢尔比先生把汤姆卖给了奴隶贩子黑利，以偿还一些债务。谢尔比夫人的仆人伊丽莎担心她的儿子哈利也会被卖给黑利。她带着哈利逃到了俄亥俄州。伊丽莎的丈夫乔治·哈里斯也逃走了。哈里斯一家最终逃脱了奴隶捕手的追捕，抵达了加拿大。与此同时，汤姆救了小伊娃的命，伊娃的父亲圣克莱尔随后买下了汤姆。小伊娃对汤姆深表同情。伊娃久病而死，她的父亲决定释放汤姆，因为伊娃在临终前要求他释放所有被奴役的人民。然而，圣克莱尔被谋杀了，汤姆被卖给了残忍的奴隶主西蒙·勒格里。当汤姆拒绝告诉他两名计划逃跑的奴隶的藏身之处时，勒格里将汤姆打死了。
+
+在小说中，离散家庭的痛苦和奴隶主的残忍极其明显，斯托夫人对受苦奴隶的同情体现在每一页。
+
+## 关于此选集
+
+以下摘录来自第十四章“伊万杰琳”和第四十四章“殉道者”的开头叙述。斯托夫人哀叹，浩瀚的密西西比河“其产品覆盖了热带和极地之间的所有地区”，却装载着“更可怕的货物”——可怜、无知的黑奴心中的泪水、叹息和痛苦的祈祷。汤姆叔叔被卖给了一个新主人，不得不乘轮船离开他在肯塔基州的家人。在甲板上，他看着在棉花田里干活的黑奴，幻想着自己悲惨的生活，想念着家人。这段情节之后是一段经常被引用的对奴隶制及其非人性残忍的悲惨谴责的文字。
